@@ -1,1 +1,1 @@
-# Disserta-o
+# Dissertação de mestrado - Universidade Do Minho
